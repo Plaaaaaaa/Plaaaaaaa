@@ -2,7 +2,7 @@
 - 👀 I’m interested in technology, medicine, law, and Star Trek
 - 🌱 I’m currently learning that I need more knowledge 
 - 💞️ I’m looking to collaborate on websites and grafix.
-- 🌱 Over 25 years business and sales consulting experience, if you have questions, I'm happy to help.
+- 🌱 Over 25 years of business and sales consulting experience, if you have questions, I'm happy to help.
 - 📫 You can reach me at pla@goldenviewweb.com 
 
 <!---
